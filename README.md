@@ -22,4 +22,5 @@ Next 5yr Goals:
 # Mindset-Goals
 
 - I can do better and will do better than them
-- 
+- No matter how many setbacks and obstacles I will rise from each one of them and prove it to the world all what I am capable of.
+- OQP; similar mindset & value system people
