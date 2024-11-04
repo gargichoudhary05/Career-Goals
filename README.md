@@ -17,3 +17,9 @@ Next 5yr Goals:
 - Forbes 30 under 30
 - Harvard MBA
 -
+
+
+# Mindset-Goals
+
+- I can do better and will do better than them
+- 
