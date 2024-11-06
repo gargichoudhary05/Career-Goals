@@ -16,7 +16,11 @@ Next 5yr Goals:
 - MAANG Engineer
 - Forbes 30 under 30
 - Harvard MBA
--
+
+Next 8yr Goals:
+
+- BUilding unique and Global brand of my own; on my own
+- With a powerful mission statement, talented driven individuals, impactful work.
 
 
 # Mindset-Goals
